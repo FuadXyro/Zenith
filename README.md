@@ -8,5 +8,5 @@
 Mau make? pake aja asalkan di fork sama kasih bintang, klo bisa tambahin juga cuy biar makin banyak onghe
 
 ### Donasi ngab
-[Klik disini](https://saweria.com/pnggilajacn) minimal 10k whehehe <br>
-[Klik disini](https://trakteer.id/pnggilajacn) ini terserah berapa aja
+[Klik disini](https://saweria.com/FuadXy) minimal 10k whehehe <br>
+[Klik disini](https://wa.me/6283138381932?=.saweria) ini terserah berapa aja
